@@ -10,3 +10,6 @@ Sejauh ini menurut saya aman aja, cuma kemaren waktu izin saya kira ketika tidak
 
 ## Kesan Pesan Cluster 12 Sejauh Ini 
 Sejauh ini saya rasa cluster saya terutama yang tif kurang komunikasi dan belum bisa sedekat itu sebagai sesama anggota cluster.
+
+## Harapan Kuliah 
+Harapan saya bisa lulus intrivia tanpa harus mengalami pemutihan ataupun kelulusan bersyarat. 
